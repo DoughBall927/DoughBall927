@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DoughBall927
+- 👀 I’m interested in computer programming
+- 🌱 I’m currently learning how to walk
+- 📫 How to reach me - @DoughBall927 on Twitter
